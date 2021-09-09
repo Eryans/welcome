@@ -5,4 +5,4 @@ Et je connais déjà de par moi même le C# et le lua
 J'adore aussi la musique et l'art
 Je suis aussi un amateur de sport et notamment d'escalade.
 J'aime aussi le bon rhum ! :]
-ET LA BIERE !
+ET LA BIERE ! Et le whisky !
